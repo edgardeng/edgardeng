@@ -1,6 +1,6 @@
 ### Hi I'm Edgar Deng! 👋
 
-<em>An Software Enginner in Shanghai </em>  <img align='right' src="https://giphy.com/gifs/programmer-p4NLw3I4U0idi" width="230" >
+<em>An Software Enginner in Shanghai </em>  <img align='right' src="https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=2424429588,3785616502&fm=16" width="230" >
 
 ### A little more about me...  
 
